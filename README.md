@@ -1,0 +1,7 @@
+1)Cut paneer into 4 big pieces.With the help of a knife from the centre of each piece scoop out of the paneer forming a square shaped hollow.Leave a border of 1/4"(one-fourth) all around.Do not dig very deep. Let the botttom be intact.Keep the scooped-out paneer aside. Sprinkle salt,chilli and chat masala on paneer.
+2)For the curry ,heat 2tbsp oil in a small,heavy pan.Reduce heat.Add onion and stir till golden.Add curry powder and fresh coriander and stir for a few seconds.Mix 2 tbsp of the mashed scooped paneer and salt to taste.
+3)Remove pan from heat and add milk, stirring continously.Return the pan to heat and stir until the sauce comes to a boil. Boil for 1 minute,stirring continously. Add cornflour mixed with water and stir for 2 minutes on low heat till slightly thick. Remove from heat.Keep curry aside.
+4)For filling, heat 1 tbsp oil in a pan, add gigner-garlic paste. Wait for a minute, Ad  onion and cook till golden. Add broccoli.Mix. Add salt, pepper and tomato ketchup. Cook for a minute. Remove from heat
+5)Heat 2tbsp oil in a pan. Fry gently 2 pieces of paneer blocks at a time. fry turning all the sides till golden.
+6)Fill1/4(one-fourth) of filling in each scooped out block.
+7)In a shallow rectangular serving dish,put some of the gravy. Arrange the stuffed paneer blocks on the gravy. Drizzle the remaining gravy. Cover and heat in an oven or microwave
